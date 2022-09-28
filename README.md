@@ -10,7 +10,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/rajnish-sarma-a66462216/](https://www.linkedin.com/in/rajnish-sarma-a66462216/)
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
